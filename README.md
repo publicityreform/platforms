@@ -5,6 +5,8 @@ list of open-access art-related online publishing and distribution platforms.
 
 [https://africasacountry.com/](https://africasacountry.com/) 
 
+[https://apogeejournal.org/](https://apogeejournal.org/)  
+
 [https://arts.black/](https://arts.black/) 
 
 [https://b-l-u-e.online/index/](https://b-l-u-e.online/index/) 
@@ -34,6 +36,8 @@ list of open-access art-related online publishing and distribution platforms.
 [https://ftp.life/](https://ftp.life/)  
 
 [https://gauss-pdf.com/](https://gauss-pdf.com/)  
+
+[https://genderfailpress.com/](https://genderfailpress.com/)  
 
 [https://georgiageorgia.org/](https://georgiageorgia.org/)  
 
