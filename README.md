@@ -3,6 +3,8 @@ list of open-access art-related online publishing and distribution platforms.
 
 [https://4columns.org/](https://4columns.org/) 
 
+[https://aarea.co](https://aarea.co)
+
 [https://africasacountry.com/](https://africasacountry.com/) 
 
 [https://apogeejournal.org/](https://apogeejournal.org/)  
