@@ -19,6 +19,8 @@ list of open-access art-related online publishing and distribution platforms.
 
 [https://counterflows.com/](https://counterflows.com/)  
 
+[https://www.courtyard.space/](https://www.courtyard.space/)
+
 [https://ctm-festival.de/magazine](https://ctm-festival.de/magazine)  
 
 [https://dancelawyer.com/](https://dancelawyer.com/)  
